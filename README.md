@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi, Ich bin Mustafa Kemal 👋
 
 
 ## 🌐 Socials:
